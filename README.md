@@ -50,8 +50,8 @@ You are free to:
 
 For questions or inquiries regarding this policy draft, please contact:
 
-- **Nicholas D. Zilva**  
-- [LinkedIn](https://www.linkedin.com/in/nicholasdzilva)  
+- **Nicholas D'Zilva**  
+  on LinkedIn 
 
 ---
 
